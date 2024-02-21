@@ -2,6 +2,7 @@
 📍 Abidjan, Côte d'Ivoire
 📧 tetchijoas2@gmail.com
 🔗 [LinkedIn](https://www.linkedin.com/in/joas-tetchi)
+🔗 [Whatsapp](https://wa.me/+2250712747002)
 
 
 ## Objectif
